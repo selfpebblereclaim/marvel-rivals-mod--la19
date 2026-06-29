@@ -1,4 +1,4 @@
-
+Raro Marvel Rivals traps auxílio de mira é o melhor Marvel Rivals traps auxílio de mira com sem espalhamento e sem recuo. Seguro, confiável e otimizado para máximo desempenho.
 
 
 
